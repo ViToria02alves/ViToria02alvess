@@ -1,1 +1,4 @@
-# ViToria02alvess
+-sou vitória Alves 
+-sou estudante do 1°A
+-espaço para aulas de pensamentos computacionais
+-🤨😎🤭🎀🤙🏽🙅🏽
